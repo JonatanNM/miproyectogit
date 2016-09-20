@@ -1,1 +1,1 @@
-Quiero aprender git para tener un trabajo decente.
+SE HA BORRADO EL MUY CABRÓN
